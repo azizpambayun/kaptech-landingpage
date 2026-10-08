@@ -1,0 +1,1 @@
+ini adalah landing page kaptech.com
